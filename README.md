@@ -1,4 +1,4 @@
-# holl0wpvrple`<p align="center">
+# satoru gojo`<p align="center">
 <img src="https://i.postimg.cc/y63gSz8F/Untitled96-20261031214650.png"width="800px"   /> 
   <br>
   
